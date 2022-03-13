@@ -1,5 +1,4 @@
 Adding  my favorite things.
-  *fam
   *🥇
   *🥈
   *🥉
