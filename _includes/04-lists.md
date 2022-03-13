@@ -1,4 +1,4 @@
-Adding  my favorite things.
+Adding  my list of  favorite things;
   *🥇
   *🥈
   *🥉
